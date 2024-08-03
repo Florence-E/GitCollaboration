@@ -1,1 +1,1 @@
-I am collaorating with friends
+I am collaborating with friends
